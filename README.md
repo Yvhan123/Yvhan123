@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 I'm just having fun and trying new things!
 
 <!--
 **Yvhan123/Yvhan123** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
